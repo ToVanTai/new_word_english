@@ -98,9 +98,8 @@ https://youtu.be/Y5EL8g2u11M?si=g0GAodYjEf8-ps6U
 
 # content
 
-1. The Fisherman's Life
+## 1. The Fisherman's Life
 
-**ENGLISH / TIẾNG VIỆT:**
 
 Once upon a time, on the shore of the deep blue sea, a fisherman and his wife were living in a tiny cottage.  
 > Ngày xửa ngày xưa, bên bờ biển xanh sâu thẳm, có một ngư dân và vợ ông sống trong một túp lều nhỏ.
@@ -125,9 +124,8 @@ If he picked apples, she craved pears.
 
 ---
 
-2. The Magic Flounder
+## 2. The Magic Flounder
 
-**ENGLISH / TIẾNG VIỆT:**
 
 One day, the fisherman went fishing as usual. He swung his fishing rod into the water and started to wait.  
 > Một ngày nọ, người ngư dân lại đi câu như thường lệ. Ông quăng cần câu xuống nước và bắt đầu chờ đợi.
@@ -164,9 +162,8 @@ This fish was golden and shining brightly.
 
 ---
 
-3. The First Wish
+## 3. The First Wish
 
-**ENGLISH / TIẾNG VIỆT:**
 
 The fisherman returned home with great excitement.  
 > Người ngư dân trở về nhà với vẻ rất phấn khích.
@@ -191,9 +188,8 @@ The fisherman could not refuse his wife's request and went back to the seaside.
 
 ---
 
-4. The New House
+## 4. The New House
 
-**ENGLISH / TIẾNG VIỆT:**
 
 "Flounder, flounder, fish prince, I just want to make a wish. My wife is not happy at all, tired of living in a cottage. She wants a nice house."  
 > "Cá bơn, cá bơn ơi, hoàng tử cá, tôi chỉ muốn ước một điều. Vợ tôi không hạnh phúc chút nào, cô ấy mệt mỏi vì phải sống trong túp lều. Cô ấy muốn một ngôi nhà đẹp."
@@ -218,9 +214,8 @@ The inside of the house was full of brand new furniture and everywhere was immac
 
 ---
 
-5. The Wish for a Palace - Lời ước cung điện
+## 5. The Wish for a Palace - Lời ước cung điện
 
-**ENGLISH / TIẾNG VIỆT:**
 
 That night, the fisherman's wife could not sleep. As soon as the morning came, she made another request from her husband at the breakfast table.  
 > Tối hôm đó, vợ người đánh cá không thể chợp mắt. Sáng ra, vừa ngồi vào bàn ăn sáng, bà lại yêu cầu chồng:
@@ -266,9 +261,8 @@ When the fisherman returned, he saw that there was now a huge palace where his h
 
 ---
 
-6. The Wish to be Empress - Lời ước làm nữ hoàng
+## 6. The Wish to be Empress - Lời ước làm nữ hoàng
 
-**ENGLISH / TIẾNG VIỆT:**
 
 The poor fisherman went to the seaside sadly to make his wife happy.  
 > Người đánh cá tội nghiệp lại buồn rầu ra biển vì muốn làm vợ vui lòng.
@@ -296,9 +290,8 @@ When the fisherman came running back, he could not believe his eyes. The palace 
 
 ---
 
-7. Ambition Has No End - Tham vọng không có điểm dừng
+## 7. Ambition Has No End - Tham vọng không có điểm dừng
 
-**ENGLISH / TIẾNG VIỆT:**
 
 The fisherman and his wife lay on the bed to sleep. The fisherman fell asleep praying that his wife would not want anything more from him. However, his wife did not sleep again. She had been thinking all night about what more she could want from that magic fish.  
 > Người đánh cá và vợ nằm trên giường đi ngủ. Ông cầu mong vợ sẽ không muốn gì thêm nữa. Nhưng vợ ông lại không ngủ nổi, cả đêm chỉ nghĩ xem còn có thể xin cá điều gì nữa.
@@ -314,9 +307,8 @@ A week passed. The woman called her husband before her and made a request.
 
 ---
 
-8. Endless Asking and Consequence - Những lời ước không ngừng & hậu quả
+## 8. Endless Asking and Consequence - Những lời ước không ngừng & hậu quả
 
-**ENGLISH / TIẾNG VIỆT:**
 
 "I want to be a queen. Don’t you understand? Go and tell that to the fish prince."  
 > "Em muốn làm nữ hoàng mà, anh không hiểu sao? Đi nói với hoàng tử cá đi."
@@ -350,9 +342,8 @@ When the fisherman returned, he saw that there was now a huge palace where his h
 
 ---
 
-9. The Ending - Kết truyện
+## 9. The Ending - Kết truyện
 
-**ENGLISH / TIẾNG VIỆT:**
 
 Finally, when the wife asked to become the ruler of the sun and the moon, the fisherman returned to the sea for the last time. The sea was dark, stormy, and angry.  
 > Cuối cùng, khi bà vợ đòi làm chủ mặt trời và mặt trăng, người đánh cá lại ra biển lần cuối. Biển tối đen, sóng gió cuồn cuộn, nổi giận.

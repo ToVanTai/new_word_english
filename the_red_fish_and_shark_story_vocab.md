@@ -86,7 +86,7 @@ https://youtu.be/SRZLew1fFHY?si=Ea1UVz14VXRQtb8n
 
 # content
 
-1. The Shark Gang Hunts (Băng cá mập săn mồi)
+## 1. The Shark Gang Hunts (Băng cá mập săn mồi)
 
 
 Under the deep blue sea, the dangerous shark gang was hunting again.  
@@ -121,7 +121,7 @@ While they were busy with the toy fish, the yellow fish escaped.
 
 ---
 
-2. The Red Fish Family (Gia đình cá đỏ)
+## 2. The Red Fish Family (Gia đình cá đỏ)
 
 
 The beautiful sea wasn’t just full of sharks; it was also filled with colorful, cute, and happy fish families.  
@@ -147,7 +147,7 @@ Three red fish entered their house, which was a sunken ship.
 
 ---
 
-3. The Shark’s Plan (Kế hoạch của Cá Mập)
+## 3. The Shark’s Plan (Kế hoạch của Cá Mập)
 
 
 The shark gang saw them and wanted to catch the mother fish.  
@@ -194,7 +194,7 @@ So the fish siblings went out.
 
 ---
 
-4. The Escape and Rescue (Chạy trốn & Giải cứu)
+## 4. The Escape and Rescue (Chạy trốn & Giải cứu)
 
 
 The "red fish" led the siblings, "Let me take you home, I’ve got more cookies!"  
@@ -223,7 +223,7 @@ The mother fish wisely sought help from the giant whale Willie, and the three of
 
 ---
 
-5. The Final Showdown & Lesson (Cuộc đối đầu & Bài học)
+## 5. The Final Showdown & Lesson (Cuộc đối đầu & Bài học)
 
 
 The shark gang was just about to feast when they noticed, "But there are only two red fish here, boss!"  
