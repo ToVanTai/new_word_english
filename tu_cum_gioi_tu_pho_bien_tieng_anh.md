@@ -79,6 +79,7 @@
 | sit down           | ngồi xuống                 | Sit down, please.                           | Xin mời ngồi.                            |
 | hurry up           | nhanh lên                  | Hurry up, we’re going to be late!           | Nhanh lên, chúng ta sẽ trễ mất!          |
 | come on            | Thôi nào, nào đi mà        | Come on, let’s go!                          | Nào, đi thôi!                            |
+| check out          | thanh toán (ở cửa hàng, khách sạn) | I’d like to check out, please.              | Tôi muốn thanh toán (trả phòng/ra quầy)  |
 | go back to         | quay lại, trở về           | I want to go back to my hometown.           | Tôi muốn trở về quê nhà.                 |
 | left it back ...   | để lại ở ...               | I left my umbrella back at the office.      | Tôi để cây dù lại ở văn phòng.           |
 | run out (of)       | cạn, hết                   | We have run out of milk.                    | Chúng ta hết sữa mất rồi.                |
@@ -115,6 +116,8 @@
 | into (the) water     | xuống nước                  | The boy jumped into the water.                  | Cậu bé nhảy xuống nước.                       |
 | in front of (something/someone) | trước mặt...       | She stood in front of the class.                | Cô ấy đứng trước lớp học.                     |
 | full of ...          | đầy ...                     | The basket is full of apples.                   | Giỏ đầy táo.                                  |
+| put on       | mặc vào, đội vào, bật lên       | She put on her coat before leaving.  | Cô ấy mặc áo khoác trước khi ra ngoài.     |
+| put on       | (bật, mở lên thiết bị, nhạc...) | Can you put on some music, please?   | Bạn mở nhạc lên được không?                |
 
 
 
