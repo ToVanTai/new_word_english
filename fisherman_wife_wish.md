@@ -95,7 +95,130 @@ https://youtu.be/Y5EL8g2u11M?si=g0GAodYjEf8-ps6U
 
 
 ***
+# content english
+ once upon a time on the shore of the deep blue sea a fisherman and his wife were living in a tiny cottage the fisherman used to go to the seaside every day and fish with his fishing rod he was quite content to live like this but his wife was not as happy as he was ugh look at that disgusting cottage moldy and damp everywhere i am tired of cleaning every day the fisherman was very much in love with his wife but no matter what he did he could not make her happy if he brings her fish she wants crab if he picks apples she craves pears one day the fisherman went fishing as usual he swung his fishing rod into the water and started to wait after a few hours the tip of his fishing rod finally trembled oh a fish hit the hook but ouch this must be a stubborn big fish the fisherman pulled pulled pulled and was surprised to finally see the flounder on the tip of his fishing rod because this fish was golden and shining brightly you finally managed to catch me didn't you fisherman huh did you just talk to me or am i going crazy you heard right fisherman but listen i'm not like the other fishes i'm actually a prince under a spell i can't believe this free me fishermen please don't kill me even make a wish and i'll make it come true because you saved me no no no need i've never seen a talking fish before of course i will free you come on go back to the seas the fisherman returned home with great excitement why did you come back early didn't you catch fish couldn't you at least bring some fruit no darling i caught a fish today but but but that fish was talking he told me he was actually a prince what and what happened then well then he asked me to make a wish but that moment i was shocked and i immediately let him back into the water so you found a magic fish and left it back in the water without asking for anything huh i cannot believe you you saved his life you could make a wish in return like a house go catch that fish again and ask for a new home to make me happy the fisherman could not refuse his wife's request and went back to the seaside  flounder flounder fish prince i just wanna make a wish come on make through this wish tick tock tick tock the fish just came out of the water what do you want fisherman tell me my wife is not happy at all tired of living in a cottage she wants a nice house so go home fisherman she has a new home now  the fisherman ran home and saw his wife standing in front of a perfect house the inside of the house was full of brand new furniture and everywhere was immaculate oh husband we will no longer live in a cottage but in a wonderful house and everything is new and clean yes my wife now we can live happily ever after in this house right  we can never know that my darling that night the fisherman's wife could not sleep  as soon as the morning came she made another request from her husband at the breakfast table husband this house seems too small for us i want a bigger house even a palace what i want to be a queen don't you understand go and tell that to the fish prince the fisherman went to the seaside with thoughts in his head flounder flounder fish prince i just wanna make a wish come on make through this wish tick tock tick tock my wife is not happy at all why fisherman she wants to have a palace so go home fishermen your wife now lives in a palace when the fisherman returned he saw that there was now a huge palace where his house was and his wife was sitting on a huge throne in the palace hall my darling you really have become a queen  yes so are you happy now no i actually want to be the empress not the queen what a fish can't make you an empress do you understand let the fish prince decide that come on move go ask the fish to make me the empress the poor fisherman went to the seaside sadly to make his wife happy flounder flounder fish prince i just wanna make a wish come on make through this wish tick tock tick tock my wife is still not happy well is that so so what does she want this time she she wants to be an empress so go home fisherman your wife is now an empress when the fisherman came running back he could not believe his eyes the palace was now much larger than before moreover there were guards at the door his wife on the other hand was now sitting on a more glorious throne as an empress oh my darling you really have become an empress yes so are you happy now hmm i don't know we'll talk about it later i'm so tired today we better sleep now the fisherman and his wife lay on the bed to sleep the fisherman fell asleep praying that his wife would not want anything more from him however his wife did not sleep again she had been thinking all night about what more she could want from that magic fish week has passed the woman called her husband before her and made a request husband time keeps running out i want to control time i want to live above the clouds and rule the sun and the moon what are you saying wife why do you want such a thing why is this abundance wealth and power not enough if you want me to be happy go to that fish prince now and tell him my wish i can't do this my darling please stop now oh but don't you want me to be happy the fisherman risked everything to make his wife happy and went to the seaside again flounder flounder fish prince i just wanna make a wish come on make to this wish tick tock tick tock my wife is still not happy i'm sorry about that fisherman what does she want this time my wife wants to control time she wants to rule the sun and the moon in a palace above the clouds alright fisherman go home your wife now has what she wants when the fisherman came running back neither his wife nor the palace were there when he looked up he saw that the clouds were far away from him my wife where are you you are far from me now the fishermen hurried back to the seashore and called the fish prince flounder flounder fish prince i just want to make a wish come on make through this wish tick tock tick tock what happened to my wife i just fulfilled her wish she gave up everything to rule time above the clouds so neither you can see her nor can she see you oh fish prince i saved your life but i never asked you for a wish myself i always wanted something for my wife please help me give me back my wife hmm you're right fisherman tell me what is your wish may my wife always be with me and very happy this is my wish well fisherman go home your wife has everything to be happy the fisherman ran home with great excitement he was very surprised to see this new situation his wife was waiting for him in front of the cottage just like in the old days oh my husband i couldn't realize the worth of what i had i was actually very happy with you in this small and cute cottage oh my wife i love you so much from that day on the fisherman's wife understood that even the smallest things can bring happiness thus they lived happily ever after in a clean house with delicious food every day 
 
+# content vietnamese
+Ngày xửa ngày xưa, bên bờ biển xanh sâu thẳm, có một người ngư dân và vợ của ông sống trong một căn lều nhỏ bé. Ngày nào người chồng cũng ra biển câu cá với chiếc cần câu cũ. Ông rất bằng lòng với cuộc sống ấy, nhưng vợ ông lại không vui vẻ như vậy.
+
+“Trời ơi, nhìn cái lều tồi tàn này đi! Ẩm mốc, dơ bẩn khắp nơi. Em chán ngán phải dọn dẹp mỗi ngày rồi!” – người vợ càu nhàu.
+
+Người ngư dân yêu vợ tha thiết, nhưng dù có cố gắng thế nào ông cũng chẳng thể làm vợ vừa lòng. Ông đem cá về, cô lại muốn ăn cua. Ông hái táo thì cô thèm lê.
+
+Một ngày nọ, người ngư dân vẫn như thường lệ ra biển câu cá. Ông vung cần xuống nước rồi kiên nhẫn đợi. Sau vài tiếng, đầu cần câu cuối cùng cũng rung lên.
+“Ồ, cá đã cắn câu rồi! Nhưng ái chà, chắc là con cá này lì lắm!”
+Ông kéo cần mãi, kéo mãi, mãi đến khi vô cùng bất ngờ thấy một con cá bơn ở đầu cần câu – con cá này màu vàng óng ánh, tỏa sáng rực rỡ.
+
+“Cuối cùng thì ông cũng bắt được ta rồi hả, lão ngư dân?”
+
+“Hả? Có phải... cá vừa nói chuyện với tôi không? Hay là tôi hóa điên rồi?”
+
+“Ông nghe không nhầm đâu! Nhưng nghe này, ta không phải cá thường. Ta thực ra là một vị hoàng tử bị dính lời nguyền. Làm ơn, hãy tha cho ta! Đừng giết ta, và nếu muốn, ông cứ ước một điều gì đi, ta sẽ giúp ông thực hiện, vì ông đã cứu mạng ta.”
+
+“Không, không, ta chưa từng thấy con cá nào biết nói cả. Dĩ nhiên ta sẽ tha cho ngươi. Thôi, trở về biển đi!”
+
+Người ngư dân trở về nhà với niềm vui lớn.
+“Ông về sớm thế này là sao? Không bắt được cá à? Cũng không mang trái cây về luôn hả?” – vợ ông hỏi.
+
+“Không đâu vợ yêu ơi, hôm nay ta bắt được một con cá, nhưng con cá ấy biết nói! Nó tự nhận là hoàng tử!”
+
+“Rồi... rồi sao?”
+
+“Rồi nó bảo ta hãy ước bất cứ điều gì, nó sẽ thực hiện. Nhưng lúc đó ta sững sờ quá nên chỉ thả nó về biển luôn.”
+
+“Ông thật không tin được! Tìm được cá thần mà không ước gì hết! Ít nhất cũng phải ước một căn nhà mới cho tôi hạnh phúc đi chứ! Quay lại biển, gặp cá đó, ước ngay cho tôi một căn nhà mới!”
+
+Người ngư dân không từ chối nổi vợ lại ra biển.
+
+“Cá bơn, cá bơn, hoàng tử cá ơi, tôi muốn ước một điều, xin hãy nghe tôi!”
+
+Con cá lại trồi lên mặt nước, “Ông muốn gì vậy, lão ngư dân?”
+
+“Vợ tôi mãi không vui – cô ấy chán phải sống trong lều rách, chỉ mong có một căn nhà khang trang thôi.”
+
+“Thế thì về đi, nhà cô ấy mới toanh rồi đó.”
+
+Người ngư dân chạy về, thấy vợ mình đứng trước một căn nhà đẹp lộng lẫy. Trong nhà mọi thứ đều mới, sạch bóng không vết bẩn.
+
+“Anh ơi, từ nay chúng ta không phải sống trong cái lều rách nữa mà là ở căn nhà tuyệt vời này. Đồ đạc đều mới tinh và sạch sẽ!”
+
+“Vâng vợ yêu, chúng ta sẽ hạnh phúc trong ngôi nhà này mãi mãi, đúng không?”
+
+“Chưa biết được đâu anh à!”
+
+Tối đó, vợ người ngư dân trằn trọc mãi không ngủ được. Sáng hôm sau, ngồi vào bàn ăn sáng, bà lại yêu sách tiếp:
+
+“Anh à, em thấy nhà này vẫn quá bé với chúng ta, em muốn một căn to hơn, thực ra là một cung điện cơ! Em muốn làm... hoàng hậu! Anh hiểu không? Đi bảo cá thần cho em ngay đi!”
+
+Dù trong lòng bối rối, người ngư dân lại ra biển:
+
+“Cá bơn, cá bơn, hoàng tử cá ơi, tôi lại muốn ước một điều – xin hãy nghe tôi một lần nữa. Vợ tôi không vui, vì cô ấy muốn một cung điện đấy.”
+
+“Thế thì về đi, vợ ông giờ là chủ cung điện rồi.”
+
+Người ngư dân trở về thì choáng váng: nhà đã biến thành cung điện khổng lồ, vợ ông ngồi giữa điện trên ngai vàng lộng lẫy.
+
+“Vợ yêu, em thực sự đã thành hoàng hậu rồi!”
+
+“Ừ, nhưng em chưa thấy hài lòng đâu. Thực ra em muốn làm nữ hoàng của tất cả – hoàng hậu chưa đủ!”
+
+“Nhưng mà cá cũng không thể cho em làm nữ hoàng của mọi thứ được đâu!”
+
+“Đi hỏi cá xem, để cho nó quyết định!”
+
+Tội nghiệp người ngư dân lại ra biển với nỗi buồn rầu.
+
+“Cá bơn, cá bơn, hoàng tử cá ơi, tôi lại muốn ước một điều nữa – vợ tôi giờ vẫn chưa hài lòng, vì muốn làm nữ hoàng kia!”
+
+“Thôi được rồi, ông về đi – vợ ông bây giờ là nữ hoàng!”
+
+Lần này về đến cung điện, ông càng sửng sốt: cung điện rộng lớn hơn gấp bội, có lính canh ngoài cửa, vợ ông ngồi trên ngai vàng còn oai phong gấp nhiều lần.
+
+“Đã là nữ hoàng rồi, em hài lòng chưa?”
+
+“Em cũng... chưa rõ đâu, phải bàn sau nhé! Em mệt rồi, mình đi ngủ đi.”
+
+Tối hôm đó, khi người ngư dân cầu mong vợ mình không đòi hỏi gì thêm, thì vợ ông lại trằn trọc suốt đêm, nghĩ xem còn có thể đòi hỏi gì nữa từ cá thần.
+
+Một tuần trôi qua, bà vợ lại gọi chồng đến và yêu sách:
+
+“Anh à, thời gian này thoắt cái trôi tuột mất. Em muốn điều khiển thời gian, em muốn sống trên mây, cai quản mặt trời, mặt trăng!”
+
+“Sao... sao em lại muốn như thế? Bao nhiêu của cải, quyền lực thế này vẫn chưa đủ sao?”
+
+“Nếu muốn em hạnh phúc thì hãy ra biển nói với cá thần đi!”
+
+“Anh không làm được đâu, em dừng lại đi…”
+
+“Chẳng lẽ anh không muốn em vui sao?”
+
+Người ngư dân liều mình làm theo để làm vợ vui, lại ra biển:
+
+“Cá bơn, cá bơn, hoàng tử cá ơi, tôi muốn ước một điều nữa – vợ tôi giờ vẫn chưa vui. Cô ấy muốn làm chủ thời gian, cai quản mặt trời, mặt trăng, sống trên mây.”
+
+“Thôi được, ông về đi, vợ ông đã có mọi điều cô ấy muốn.”
+
+Người ngư dân chạy về, nhưng lần này ông chẳng còn thấy vợ hay cung điện đâu. Nhìn lên trời, ông chỉ còn thấy những đám mây lững lờ trôi thật xa.
+
+“Vợ ơi, em đâu rồi? Em xa anh mãi rồi sao?”
+
+Người ngư dân lại vội vã ra biển gọi cá thần:
+
+“Cá bơn, cá bơn, hoàng tử cá ơi, tôi chỉ muốn một điều ước nữa – vợ tôi đâu mất rồi?”
+
+“Ta đã thực hiện điều ước của vợ ông rồi. Cô ấy chọn cai quản thời gian trên mây, vậy nên ông không thể thấy cô ấy cũng như cô ấy không thể thấy ông nữa.”
+
+“Cá thần ơi, tôi đã cứu mạng cậu mà bản thân chẳng bao giờ ước điều gì cho mình. Tất cả đều cho vợ. Xin giúp tôi – cho tôi gặp lại vợ, và mong cô ấy thực sự hạnh phúc.”
+
+“Được rồi, lão ngư dân, ông cứ về đi. Vợ ông bây giờ đã có mọi điều để hạnh phúc rồi.”
+
+Người ngư dân chạy về đầy hồi hộp. Ông vô cùng ngạc nhiên khi thấy vợ mình đang đứng chờ trước căn nhà nhỏ, như thuở nào.
+
+“Anh ơi, em đã không trân trọng những gì mình có. Ở trong căn nhà nhỏ xinh này với anh em đã hạnh phúc biết nhường nào.”
+
+“Vợ yêu, anh cũng thương em nhiều lắm.”
+
+Từ đó, người vợ của ngư dân hiểu rằng hạnh phúc có thể đến từ những điều nhỏ nhặt nhất. Và họ sống bên nhau hạnh phúc mãi mãi trong căn nhà nhỏ sạch sẽ, với những bữa cơm ngon mỗi ngày.
 # content
 
 ## 1. The Fisherman's Life
