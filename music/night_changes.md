@@ -1,3 +1,24 @@
+| Từ/Cụm từ           | Nghĩa/Tiếng Việt                | Ghi chú                                      |
+|---------------------|----------------------------------|----------------------------------------------|
+| changes into        | chuyển thành                     | change into: thay đổi thành                  |
+| regrets             | hối tiếc                         | regret: sự hối tiếc                          |
+| heading for         | hướng tới, nhắm tới              | to head for: đi về hướng                     |
+| having no regrets   | không hối tiếc                   | cụm từ                                       |
+| driving too fast    | lái xe quá nhanh                 | cũng có nghĩa bóng: vội vã                    |
+| breaking through    | xuyên qua, phá qua               | break through: chiếu xuyên qua               |
+| dreamed of          | mơ về, từng mơ đến               | dream of: mơ về                              |
+| disappearing        | biến mất                         | disappear: biến mất                          |
+| chasing             | đuổi theo, theo đuổi             | chase: đuổi theo                             |
+| doubts              | sự nghi ngờ                      | doubt: nghi ngờ                              |
+| 'round her head     | xung quanh đầu cô ấy             | 'round = around                              |
+| hides behind        | núp sau                          | hide behind: núp sau                         |
+| cigarette           | điếu thuốc                       |                                              |
+| beating loud        | đập mạnh, vang lớn               | beat (tim): đập                              |
+| moving too fast     | chuyển động/quá vội vàng          | move too fast: vội vã                        |
+| lighting up         | chiếu sáng                       | light up: thắp sáng                          |
+| falling             | đang rơi, đang yêu (ẩn dụ)       | cảm xúc hoặc vật lý                           |
+| innocence           | sự ngây thơ, ngây ngô            |                                              |
+
 [Zayn:]
 Going out tonight  
 Changes into something red  
