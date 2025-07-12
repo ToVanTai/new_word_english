@@ -10,4 +10,4 @@ can you help me download the YouTube transcript for '' , and then extract just t
 Thêm cụm từ mới "check out" (thanh toán) theo đúng chuẩn format bảng nhóm trong file common_phrases_with_prepositions.md, với giải thích, ví dụ Anh-Việt. Đặt vào nhóm các cụm dùng với "out".
 
 # format 
-format lại cấu trúc  file `the_red_fish_and_shark_story_vocab.md` giống với file `fisherman_wife_wish.md` để cho đồng nhất
+format lại cấu trúc  file `the_little_mermaid_&_playful_lessons.md` giống với file `fisherman_wife_wish.md` để cho đồng nhất, tuyệt đối phải giữa nguyên phần nội dung dịch anh/việt
